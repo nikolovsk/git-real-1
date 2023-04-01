@@ -1,2 +1,2 @@
 Angela
-Vezbi si
+Auditoriski vezbi si
